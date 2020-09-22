@@ -1,5 +1,5 @@
-# story
-I like [orange](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FOrange_(fruit)&psig=AOvVaw2w6fBg0PhS2jzsfnjxQfPV&ust=1597986651805000&source=images&cd=vfe&ved=0CA0QjhxqFwoTCLjD_qmCqesCFQAAAAAdAAAAABAO)
-I am confuseddddd
-hi
-but why do u like oranges 
+She was a quiet girl, I judged, with smooth silky blonde hair, with gentle eyes over her long nose. Her smile was very kind and sweet; it would be a pity if she turned into her swollen mother. Unfortunately, she did.
+
+I was walking home after a long day at work and was exhausted. The moon shone and lit the dark alley I was walking in. Mother always told me not to take this particular alley but I wanted to get home as soon as possible. Cold wind rushed against my face as I hugged myself tighter and continued my way home.
+
+Crunch. Crunch. I stopped in my tracks, looked around me, but no one was there. Just me. Silence resonated throughout the alley. If only there was someone to say something to break the silence.
